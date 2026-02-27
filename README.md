@@ -14,6 +14,9 @@ Showcases him acting like a child!!
 
 Him being narcissistic. 
 
+<img width="1082" height="828" alt="image" src="https://github.com/user-attachments/assets/470e3232-a793-4c54-bdf9-7cd3c041acee" />
+
+Him making a post about me.
 
 
 Magg, maybe don't make a discord bot out of AI, try to deny that it is AI with solid proof, then say that you have 'info' on me. Please don't do this again.
