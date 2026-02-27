@@ -18,5 +18,10 @@ Him being narcissistic.
 
 Him making a post about me.
 
+<img width="331" height="538" alt="image" src="https://github.com/user-attachments/assets/e414aaa0-3a9d-4be6-94d8-c5004cd316a1" />
+
+Larping.
+
+
 
 Magg, maybe don't make a discord bot out of AI, try to deny that it is AI with solid proof, then say that you have 'info' on me. Please don't do this again.
