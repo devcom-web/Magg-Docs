@@ -1,5 +1,5 @@
 ## This is all info that the owner knows.
-You cannot do anything against this, this is also under a GNU license. I am unaware if you wanted me to release this or not, but that doesn't matter. If you want me to remove any of this, then dm me @ supmert on discord.
+David, no more being in Manchester. You cannot do anything against this, this is also under a GNU license. I am unaware if you wanted me to release this or not, but that doesn't matter. If you want me to remove any of this, then dm me @ supmert on discord.
 
 ### What sun did 😌✌️
 <img width="688" height="227" alt="image" src="https://github.com/user-attachments/assets/e272501a-0e72-4257-80fb-a1d0ed93ffd1" />
@@ -21,6 +21,10 @@ Him making a post about me.
 <img width="331" height="538" alt="image" src="https://github.com/user-attachments/assets/e414aaa0-3a9d-4be6-94d8-c5004cd316a1" />
 
 Larping.
+
+<img width="774" height="94" alt="image" src="https://github.com/user-attachments/assets/bbd06e8d-433b-40d4-9fa4-0fd70ef7dc83" />
+
+sun
 
 
 
